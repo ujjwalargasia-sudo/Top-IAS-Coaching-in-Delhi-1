@@ -7,7 +7,7 @@
 ## Why Choose Plutus IAS?
 
 - ✅ Experienced and dedicated faculty  
-- ✅ Structured courses for Prelims, Mains, and Interviews  
+- ✅ Structured courses for Prelims, Mains, and Interviews
 - ✅ Daily mock tests and answer writing practice  
 - ✅ Updated study material and current affairs guidance  
 - ✅ Proven track record of UPSC success  
